@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me ...
 - 😄 Pronouns: attack/helicopter
-- ⚡ Fun fact: H
+- ⚡ Fun fact: I got locked out of the account Haydiew so I have to settle with Haydiew1
 
 <!---
 Haydiew1/Haydiew1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
